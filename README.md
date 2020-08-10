@@ -32,6 +32,7 @@
 
 Discord: 葵 -あおい-#0513 (508919483440693294)<br>
 Twitter: [葵 -あおい- (@Aoichaan0513)](https://twitter.com/Aoichaan0513)
+
 御用の方は上記アカウントのDMかこのTwitterアカウントのDMで承っております。<br>
 DM内での宣伝、フォローしてすぐの資産運用等の勧誘、エロ垢のやつはお断りいたします。場合によってはブロックするので悪しからず。
 
@@ -41,5 +42,5 @@ DM内での宣伝、フォローしてすぐの資産運用等の勧誘、エロ
 
 ---
 
-アイコン: [@MikaPikaZo](https://twitter.com/MikaPikaZo) さん<br>
+アイコン: [Mika Pikazo (@MikaPikaZo)](https://twitter.com/MikaPikaZo) さん<br>
 サブ垢: @Subchaan0513, @Ktnh_Aoichaan
