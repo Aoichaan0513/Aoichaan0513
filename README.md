@@ -30,7 +30,7 @@
 
 ### その他いろいろ
 
-Discord: 葵 -あおい-#0513 (508919483440693294)<br>
+Discord: 葵 -あおい-#0782 (508919483440693294)<br>
 Twitter: [葵 -あおい- (@Aoichaan0513)](https://twitter.com/Aoichaan0513)
 
 御用の方は上記アカウントのDMかこのTwitterアカウントのDMで承っております。<br>
