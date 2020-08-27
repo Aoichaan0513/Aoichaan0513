@@ -42,5 +42,5 @@ DM内での宣伝、フォローしてすぐの資産運用等の勧誘、エロ
 
 ---
 
-アイコン: [Mika Pikazo (@MikaPikaZo)](https://twitter.com/MikaPikaZo) 様 [秋ミク](https://www.pixiv.net/artworks/77048544)<br>　
+アイコン: [Mika Pikazo (@MikaPikaZo)](https://twitter.com/MikaPikaZo) 様 -> [秋ミク](https://www.pixiv.net/artworks/77048544)<br>　
 サブ垢: @Subchaan0513, @Ktnh_Aoichaan
