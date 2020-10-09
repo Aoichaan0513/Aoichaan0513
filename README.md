@@ -30,9 +30,11 @@
 
 ### 実績など
 
-- Minecraft サーバー運営
-  - ~~ふみゃたんねっと Administrator~~ (多分辞退か閉鎖)
+- Minecraft サーバー運営 (順不同)
+  - ~~ふみゃたんねっと Administrator~~ (多分辞退か運営終了)
   - ~~ちぇる鯖 Developer~~ (辞退)
+  - ~~Title Server~~ (運営終了)
+  - ~~焼きフグサーバー~~ (運営終了、Title Serverの後継)
   - FREESERVER Developer
   - ~~Yululi Server Administrator~~ (辞退)
   - ~~Rezxis Network Developer → Senior Admin~~ (辞退)
