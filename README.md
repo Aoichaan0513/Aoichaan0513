@@ -31,11 +31,11 @@
 ### 実績など
 
 - Minecraft サーバー運営
-  - ~~ふみゃたんねっと Admin~~ (多分辞退か閉鎖)
+  - ~~ふみゃたんねっと Administrator~~ (多分辞退か閉鎖)
   - ~~ちぇる鯖 Developer~~ (辞退)
   - FREESERVER Developer
-  - ~~Yululi Server Admin~~ (辞退)
-  - ~~Rezxis Network Dev → Senior Admin~~ (辞退)
+  - ~~Yululi Server Administrator~~ (辞退)
+  - ~~Rezxis Network Developer → Senior Admin~~ (辞退)
   - MineNetwork Developer
 
 
