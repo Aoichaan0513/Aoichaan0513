@@ -26,8 +26,3 @@ DM内での宣伝、フォローしてすぐの資産運用等の勧誘、エロ
 また、フォローは推しやイラストレーター、VTuberさん、自分が興味を持った方、その他何らかの形で関わった方だけにしております。
 
 あくまでもこのアカウントでツイートしている内容は私個人の考えであり、私が参加しているプロジェクトや他社様が公式に公開している情報と差異があると思います。ご了承ください。
-
----
-
-アイコン: [Mika Pikazo (@MikaPikaZo)](https://twitter.com/MikaPikaZo) 様 -> [秋ミク](https://www.pixiv.net/artworks/77048544)<br>
-サブ垢: [@Subchaan0513](https://twitter.com/Subchaan0513), [@Ktnh_Aoichaan](https://twitter.com/Ktnh_Aoichaan)
