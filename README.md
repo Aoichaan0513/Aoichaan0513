@@ -8,7 +8,7 @@
   - ~~[ちぇる鯖](https://www.mchel.net/) Dev~~ (辞退)
   - ~~Title Server Admin~~ (運営終了)
   - ~~焼きフグサーバー Admin~~ (運営終了、Title Serverの後継)
-  - FREESERVER Dev
+  - [FREESERVER](https://freeserver.pro/) Dev
   - ~~[Yululi Server](https://yululiserver.jp) Admin~~ (辞退)
   - ~~[Rezxis Network](https://www.rezxis.net/) Dev → Senior Admin~~ (辞退)
   - [MineNetwork](https://www.minenet.work) Dev
