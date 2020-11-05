@@ -12,7 +12,7 @@
   - ~~[Yululi Server](https://yululiserver.jp) Admin~~ (辞退)
   - ~~[Rezxis Network](https://www.rezxis.net/) Dev → Senior Admin~~ (辞退)
   - [MineNetwork](https://www.minenet.work) Dev
-  - にじさんじ所属ライバー様「[マイクラ逃走中](https://twitter.com/Aoichaan0513/status/1324346096299069440)」（ねこべるさん、MineNetwork）
+  - にじさんじ所属ライバー様「[マイクラ逃走中](https://twitter.com/Aoichaan0513/status/1324346096299069440)」（[ねこべる](https://twitter.com/NecoB_WComm)さん、[MineNetwork(https://twitter.com/MineNetwork_jp)）
 
 
 ### Other
