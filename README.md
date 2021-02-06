@@ -6,7 +6,7 @@
 - Minecraft (順不同)
   - ~~ふみゃたんさーばー Admin~~ (2016、多分辞退か運営終了)
   - ~~Title Server Admin~~ (2017 ~ 2018、運営終了)
-    - ~~焼きフグサーバー Admin~~ (2017 ~ 2018、運営終了、Title Serverの後継)
+    - ~~焼きフグサーバー Admin~~ (2017 ~ 2018、運営終了)
   - ~~[ちぇる鯖](https://www.mchel.net/) Dev~~ (2018、辞退)
   - [FREESERVER](https://freeserver.pro/) Dev（2019 ~）
   - ~~[Yululi Server](https://yululiserver.jp) Admin~~ (2019、辞退)
