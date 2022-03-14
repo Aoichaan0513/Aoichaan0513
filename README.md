@@ -4,13 +4,13 @@
 ### Achievement
 
 - Minecraft (順不同)
-  - ふみゃたんさーばー Admin (2016、多分辞退か運営終了)
-  - Title Server Admin (2017 ~ 2018、運営終了)
-  - 焼きフグサーバー Admin (2017 ~ 2018、運営終了)
-  - [ちぇる鯖](https://www.mchel.net/) Developer (2018、辞退)
+  - ふみゃたんさーばー Admin (2016)
+  - Title Server Admin (2017 ~ 2018)
+  - 焼きフグサーバー Admin (2017 ~ 2018)
+  - [ちぇる鯖](https://www.mchel.net/) Developer (2018)
   - [FREESERVER](https://freeserver.pro/) Developer (2019 ~ )
-  - [Yululi Server](https://yululiserver.jp) Admin (2019、辞退)
-  - [Rezxis Network](https://www.rezxis.net/) Developer → Senior Admin (2019、辞退)
+  - [Yululi Server](https://yululiserver.jp) Admin (2019)
+  - [Rezxis Network](https://www.rezxis.net/) Developer → Senior Admin (2019)
   - [MineNetwork](https://www.minenet.work) Developer (2019 ~ 2022)
   - [Coretol](https://matchatb.wixsite.com/coretol) Developer (2022 ~ )
   - ---
