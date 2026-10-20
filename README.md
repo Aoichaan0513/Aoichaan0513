@@ -12,7 +12,7 @@
   - [Yululi Server](https://yululiserver.jp) Admin (2019)
   - [Rezxis Network](https://www.rezxis.net/) Developer → Senior Admin (2019)
   - [MineNetwork](https://www.minenet.work) Developer (2019 ~ 2022)
-  - [Coretol](https://matchatb.wixsite.com/coretol) Developer (2022 ~ )
+  - [Coretol](https://matchatb.wixsite.com/coretol) Developer (2022 ~ 2026)
   - ---
   - UUUM所属動画投稿者様「マイクラ逃走中」 (2018)
   - にじさんじ所属ライバー様「[マイクラ逃走中](https://twitter.com/Aoichaan0513/status/1324403654070206465)」 (2020、[ねこべる](https://twitter.com/NecoB_WComm)さん、[MineNetwork](https://twitter.com/MineNetwork_jp))
